@@ -5,6 +5,7 @@ haii!! im nova nd i use she / they !
 ‎ 
 i block freely , but also basic dni lmao ᢉ𐭩
 _____________________________________________________________________________________________________________________
-please int!!! unless if it says otherwise and my pony is sleeping / afk, then you're always free to! my interests are also danganronpa and sonic (not many LMAO) all of my daughters are also sally acorn (favorite character oat), akane, and sakura ogami (favorite character in dr)
+please int!!! unless if it says otherwise and my pony is sleeping / afk, then you're always free to! my interests are also danganronpa and sonic (not many LMAO) all of my daughters are also sally acorn (favorite character oat), akane, and sakura ogami (favorite character in dr) , these r all my comfort characters n i super duper loev dem.. 
+
 i'm usually shy at first and a bit socially awkard, but when i get comfy i like to joke and talk & yap a lot lmao, im lowkey looking for some new friends even though im lowkey mostly introverted (as a ambivert lmao)
 ![image alt](https://github.com/sallythatgal/sallythatgal/blob/9c6ae9e6a990b9124829cd957c2885f11e3f62e8/___1_-removebg-preview.png)
