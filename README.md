@@ -5,4 +5,5 @@ haii!! im nova nd i use she / they !
 ‎ 
 i block freely , but also basic dni lmao ᢉ𐭩
 _____________________________________________________________________________________________________________________
+please int!!! unless if it says otherwise and my pony is sleeping / afk, then you're always free to! my interests are also danganronpa and sonic (not many LMAO)
 ![image alt](https://github.com/sallythatgal/sallythatgal/blob/9c6ae9e6a990b9124829cd957c2885f11e3f62e8/___1_-removebg-preview.png)
