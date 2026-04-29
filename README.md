@@ -2,4 +2,4 @@
 she / they !
 ![image alt](https://github.com/sallythatgal/sallythatgal/blob/5427d4a46d040b345063780883ef60e5426b5aa1/257b23d4cadae9105a51780e1890afb8-removebg-preview.png)
 ‎ ˚.🎀༘⋆ i block freely , but also basic dni lmao ᢉ𐭩
-![image alt](https://github.com/sallythatgal/how-do-I-make-this-bruh/blob/b86005166485b1c42425fb25c6c0de60f0a1f485/_%20(1).jpeg)
+![image alt](https://github.com/sallythatgal/sallythatgal/blob/9c6ae9e6a990b9124829cd957c2885f11e3f62e8/___1_-removebg-preview.png)
