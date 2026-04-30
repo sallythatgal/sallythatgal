@@ -3,7 +3,7 @@ haii!! im nova nd i use she / they !
 
 ![image alt](https://github.com/sallythatgal/sallythatgal/blob/05dfdb7ac956ed5941624a2959b95163ba8d30ed/Danganronpa%20Akane%20GIF%20%E2%80%93%20Danganronpa%20Akane%20Owari%20%E2%80%93%20discover%20and%20share%20GIFs.gif)
 ‎ 
-i block freely , but also basic dni lmao ᢉ𐭩
+**YAP CORNER!!**
 _____________________________________________________________________________________________________________________
 please int!!! unless if it says otherwise and my pony is sleeping / afk, then you're always free to! my interests are also danganronpa and sonic (not many LMAO) all of my daughters are also sally acorn (favorite character oat), akane, and sakura ogami (favorite character in dr) , these r all my comfort characters n i super duper loev dem.. 
 
