@@ -20,7 +20,7 @@ please int!!! unless if it says otherwise and my pony is sleeping / afk, then yo
 
 ![image alt](https://github.com/sallythatgal/sallythatgal/blob/07fcb2db32d7d7c39f61c5e0fe94b6ef50a67821/akane_owari_sanrio-removebg-preview.png)
 
-i'm usually shy at first and a bit socially awkard, but when i get comfy i like to joke and talk & yap a lot lmao (whole category in here is literally about yapping,, just proves it more ) , im lowkey looking for some new friends even though im lowkey mostly introverted (as a ambivert lmao)
+i'm usually shy at first and a bit socially awkard, but when i get comfy i like to joke and talk & yap a lot lmao (whole category in here is literally about yapping,, just proves it more ) , im lowkey looking for some new friends even though im mostly introverted (as a ambivert lmao)
 
 **DNI LIST!!**
 ______________________________________________________________________________________________________________________
