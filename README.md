@@ -18,6 +18,10 @@ ________________________________________________________________________________
 
 please int!!! unless if it says otherwise and my pony is sleeping / afk, then you're always free to! my interests are also danganronpa and sonic (not many LMAO) all of my daughters are also sally acorn (favorite character oat), akane, and sakura ogami (favorite character in dr) , these r all my comfort characters n i super duper loev dem.. 
 
+
+![image alt](https://github.com/sallythatgal/sallythatgal/blob/1f08a68fd9dfb15598f02e8ca45fd941d7de3aac/README.md)
+
+
 i'm usually shy at first and a bit socially awkard, but when i get comfy i like to joke and talk & yap a lot lmao (whole category in here is literally about yapping,, just proves it more ) , im lowkey looking for some new friends even though im lowkey mostly introverted (as a ambivert lmao)
 
 **DNI LIST!!**
