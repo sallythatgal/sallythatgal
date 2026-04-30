@@ -16,7 +16,7 @@ ________________________________________________________________________________
 **YAP CORNER!!**
 _____________________________________________________________________________________________________________________
 
-please int!!! unless if it says otherwise and my pony is sleeping / afk, then you're always free to! my interests are also danganronpa and sonic (not many LMAO) all of my daughters are also sally acorn (favorite character oat), akane, and sakura ogami (favorite character in dr) , these r all my comfort characters n i super duper loev dem.. 
+please int!!! unless if it says otherwise and my pony is sleeping / afk, then you're always free to! my main interests are also danganronpa and sonic (not many LMAO) all of my daughters are also sally acorn (favorite character oat), akane, and sakura ogami (favorite character in dr) , these r all my comfort characters n i super duper loev dem.. 
 
 ![image alt](https://github.com/sallythatgal/sallythatgal/blob/07fcb2db32d7d7c39f61c5e0fe94b6ef50a67821/akane_owari_sanrio-removebg-preview.png)
 
